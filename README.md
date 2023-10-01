@@ -1,1 +1,0 @@
-# ControlTask6_MQA_Ruslan_Nastas
